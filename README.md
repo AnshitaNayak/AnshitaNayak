@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nayakanshita27@gmail.com**
 
-- 📄 My [Resume](https://drive.google.com/file/d/1aKFR45JJE7tCa80o6NF_8vGwa35xbz8t/view?usp=sharing)
+- 📄 My [Resume]([https://drive.google.com/file/d/1aKFR45JJE7tCa80o6NF_8vGwa35xbz8t/view?usp=sharing](https://drive.google.com/file/d/1g3WPRUgRA7KpVKvzw_bWXo0ljwV5Pkyn/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
